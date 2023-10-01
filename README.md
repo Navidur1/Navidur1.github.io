@@ -10,3 +10,8 @@ Part 2:
 
 ![image](https://github.com/Navidur1/Navidur1.github.io/assets/26190375/541078ef-bdde-44c8-9ab0-138a1ff2844d)
 ![image](https://github.com/Navidur1/Navidur1.github.io/assets/26190375/12ea1d2e-8f40-458d-940f-072e42b76a9a)
+
+Part 3:
+
+![image](https://github.com/Navidur1/Navidur1.github.io/assets/26190375/f062fc35-3754-455e-8e24-db9ffda6ede3)
+![image](https://github.com/Navidur1/Navidur1.github.io/assets/26190375/41c85849-db5f-47bf-9f8f-5f44e62c6ae6)
