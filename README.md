@@ -14,3 +14,4 @@ Part 2:
 Part 3:
 
 ![image](https://github.com/Navidur1/Navidur1.github.io/assets/26190375/f062fc35-3754-455e-8e24-db9ffda6ede3)
+![image](https://github.com/Navidur1/Navidur1.github.io/assets/26190375/41c85849-db5f-47bf-9f8f-5f44e62c6ae6)
